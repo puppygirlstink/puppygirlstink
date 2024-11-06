@@ -1,8 +1,7 @@
 im ouppy
 i dont use github that often
-i jusy steal code and use it as my own
-i make whatever i want
-message me on twitter @pawsomepuppygrl
+i make whatever
+https://puppygirlstink.github.io
 she/her it/its
 
 <!---
